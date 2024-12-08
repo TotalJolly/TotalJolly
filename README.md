@@ -8,8 +8,7 @@ Display Name : MuffinMaster
          Real Username: OliverFpe_1139
 
 
-
-![blinkies-palestine-flag](https://github.com/user-attachments/assets/21003ec6-23ec-43b3-8532-1dcec2caa702)
+![blinkies-palestine-flag](https://github.com/user-attachments/assets/21003ec6-23ec-43b3-8532-1dcec2caa702)< PALESTINE WILL BE FREE!
 
 All my fandoms >>:
 
